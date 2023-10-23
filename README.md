@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with PROGRAM IN C
 - 💬 Ask me about GitHub
 - 📫 How to reach me: andgafon@espol.edu.ec
-- 😄 Pronouns: ANDREWS
+- 😄 Pronouns: MALE
 - ⚡ Fun fact: INFINITE LEARNIGN 👾
